@@ -1,1 +1,1 @@
-# Celebal-Summer-Interns
+# Celebal-Summer-Intern
